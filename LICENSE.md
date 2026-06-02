@@ -1,4 +1,4 @@
-# 
+# Secure TreeSize add-ons for Mac OS | Turbo TreeSize add-ons for PC Windows. Featuring cookie management and disk space analysis — optimized for maximum performance on every platform.
 
 
 
